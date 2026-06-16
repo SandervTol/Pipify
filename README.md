@@ -26,4 +26,5 @@ Contact
 
 For questions regarding this privacy policy, contact:
 
-your@email.com
+sander.tol@icloud.com
+
